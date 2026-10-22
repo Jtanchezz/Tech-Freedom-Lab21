@@ -6,6 +6,8 @@
 
 **Foto de mi tabla de rondas hecha a mano:** [ver tabla](evidence/tablabuena.jpeg).
 
+**Foto de mi resumen de participantes y resultados:** [ver resumen](evidence/tabla.jpeg).
+
 **Foto de mi ficha del caso 1 hecha a mano:** [ver siete respuestas](evidence/7preguntas.jpeg).
 
 Transcribí el detalle de las rondas que observé. «P» significa que se usó la puerta para salir por el camino pedido. «—» señala que, tras el fallo de Persona 3 en la ronda 7, no cuento las anotaciones posteriores como retos superados.
